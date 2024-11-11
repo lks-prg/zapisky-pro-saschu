@@ -1,0 +1,26 @@
+## Karel Toman
+- Básník 
+- Překladatel
+- Trpěl duševní chorobou - Toulavostí (ne není to překlep)
+- Dílo
+	- Měsíce
+		- Sbírka přírodní lyriky
+		- Na každém měsíci v roce zachycuje proměnu přírody, lidského chování a tradic
+## Petr Bezruč
+- Pseudonym
+- Vlastním jménem se jmenoval Vladimír Vašek
+- Otec Antonín patřil mezi odpůrce pravosti pravopisů // lidé měli rukopisy rádi často se setkával s nenávistí a brzy zemřel
+- Dílo
+	- Slezské písně
+		- Sbírka společenské lyriky
+		- Básně se váží k oblasti Slezska
+		- A zachycuje národnostní problémy mezi Čechy, Němci, Poláky a Židy
+	- Druhy básní
+			- Milostné básně 
+				-  např. Jen jedenkrát
+			- Sociální balady
+				- Kantor Halfar
+					- Příběh českého učitele, který je šikanován (Překládali ho z místa na místo) německými a polskými úřady. Po nějaké době spáchá sebevraždu. Báseň končí slovy konečně dostal Halfar místo.
+				- Maryčka 
+					- Maryška se stará o zbylé osiřelé sourozence a proto chodí krást dřevo do panského lesa. Byla zatčena a vedena do vězení. Ze strachu před ostudou skočila ze skály do řeky.
+	- Bezruč své texty mnohokrát přepracovával a tak vzniklo podezření, že nejsou jeho.
